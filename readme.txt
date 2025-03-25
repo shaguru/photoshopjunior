@@ -1,0 +1,1 @@
+This app is low IQ use.
